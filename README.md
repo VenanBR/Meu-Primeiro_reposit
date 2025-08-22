@@ -26,4 +26,4 @@
 - 📧 Email: joh86y@gmail.com
 
 ---
-✨ Obrigado por visitar meu perfil! Em breve, mais novidades por aqui. 🚀
+                           ✨ Obrigado por visitar meu perfil! Em breve, mais novidades por aqui. 🚀
